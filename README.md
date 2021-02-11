@@ -48,5 +48,5 @@
 
 ***`If you have any client's sources, feel free to dm me, my discord is chocopie#7690 and it'll be added`***
 
-***happy skidding!***
+***happy skidding!*** yes thx
 
